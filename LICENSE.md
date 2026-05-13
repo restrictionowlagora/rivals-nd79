@@ -1,4 +1,4 @@
-
+Get ahead in rivals with rivals Scripts best, featuring instant win and anti-ban. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
